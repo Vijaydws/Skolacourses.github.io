@@ -1,1 +1,0 @@
-# Skolacourses.github.io
